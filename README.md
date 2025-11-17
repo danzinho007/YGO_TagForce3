@@ -1,2 +1,0 @@
-# YGO_TagForce3
-
